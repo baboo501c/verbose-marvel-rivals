@@ -1,1 +1,0 @@
-# verbose-marvel-rivals
